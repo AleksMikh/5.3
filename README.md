@@ -1,6 +1,6 @@
 Hello, world!
 
-![meme_zubenko_m_p](https://sun9-60.userapi.com/impf/c846018/v846018005/b5271/__Eg4bBHDsk.jpg?size=200x133&quality=96&crop=61,0,677,450&sign=bf862ff2ad6bb3dfd6e1b36280c637a5&c_uniq_tag=Qc4CquCZnTQGsJ9fp6MjGshOPNO4VUSJokhin6oIJRE&type=album)
+![__Eg4bBHDsk](https://user-images.githubusercontent.com/125484580/219708793-670df77a-234a-42fb-8c54-76152138ba90.jpg)
 
 Меня зовут _Миша_.
 
